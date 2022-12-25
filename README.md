@@ -3,5 +3,5 @@
 -  I’m currently learning Data Analytics Professional Certificates by Google
 -  How to reach me-
      Facebook: https://www.facebook.com/isanjidul005
-     Telegram: t.me/isanjidul005
+     Telegram: https://t.me/isanjidul005
       
